@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently studying<br>
+I am currently studying<br> Electronics and Communication Engineering from IIIT Nagpur
 
 
 ## 🌐 Socials:
